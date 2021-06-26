@@ -2,4 +2,7 @@
 
 
 
-## ola :
+- Strogonoff de frango :chicken:
+- Pavê :cake:
+- 
+
